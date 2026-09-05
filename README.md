@@ -19,7 +19,7 @@
 
 <div align="center">
   
-༎ ㅤ[**r𝕖𝕟try**](https://rentry.co/pillarman)ㅤ ㅤㅤ<img width="50" height="50" alt="11745" src="https://github.com/user-attachments/assets/afe69a6a-291d-4a53-8a24-ef1357c49d98" />
+༎ ㅤ[**r𝕖𝕟try**](https://rentry.co/Frank-N-Furter)ㅤ ㅤㅤ<img width="50" height="50" alt="11745" src="https://github.com/user-attachments/assets/afe69a6a-291d-4a53-8a24-ef1357c49d98" />
 ㅤㅤ[𝓪𝕥𝕒book](https://jethro.atabook.org) ㅤ༎
   
 ![](https://komarev.com/ghpvc/?username=transexuaI&style=plastic&label=transylvanians&color=D36666&base=5347)
